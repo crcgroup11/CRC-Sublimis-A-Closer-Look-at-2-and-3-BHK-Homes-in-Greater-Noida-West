@@ -11,7 +11,7 @@ There is also a ground-floor 3 BHK layout listed with a 530 sq. ft. private gard
 
 Visit the official CRC Sublimis page to review floor plans, specifications, amenities and location information.
 
-Explore CRC Sublimis
+Explore CRC Sublimis - https://www.crcgroup.in/sublimis/
 
 Planning That Gives Importance to Open Spaces
 Residential planning is not limited to the apartment interiors. The spaces between buildings, landscaped areas and recreational zones can influence how residents experience a community.
@@ -46,7 +46,7 @@ For families, proximity to schools and healthcare facilities can be particularly
 
 Planning a visit to CRC Sublimis?
 
-Contact CRC Group
+Contact CRC Group - https://www.crcgroup.in/contact-us/
 
 Why Floor Plans Deserve Careful Attention
 Two apartments with similar advertised areas can feel very different once the internal layout is considered. Room dimensions, passage space, balcony placement, kitchen arrangement and storage can all affect how comfortably a home works for a particular family.
@@ -74,6 +74,7 @@ For anyone considering a home at CRC Sublimis, the best approach is to review th
 CRC Sublimis residential development in Sector 1, Greater Noida West featuring modern apartment towers, landscaped gardens, a landscaped entrance and residential community amenities.
 
 Final Thoughts
+
 CRC Sublimis offers a combination of 2 BHK and 3 BHK homes, landscaped open spaces and a broad selection of indoor and outdoor amenities. Its location in Sector 1, Greater Noida West also places it within reach of schools, healthcare facilities, shopping destinations and major road connections listed by the developer.
 
 For prospective homebuyers, the next step should be a detailed comparison of floor plans, specifications, documentation and the actual residential environment. A site visit can help turn the information available online into a clearer understanding of whether the project matches their expectations.
